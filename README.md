@@ -1,1 +1,1 @@
-I gone to BitBucket.
+I gone to Bitbucket.
